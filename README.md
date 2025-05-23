@@ -1,1 +1,1 @@
-# H-th-ng-qu-n-l-r-p-chi-u-phim
+# He thong quan ly rap chieu phim
